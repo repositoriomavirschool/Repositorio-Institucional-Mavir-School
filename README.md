@@ -1,0 +1,1 @@
+Bienvenido al Repositorio Institucional de  Mavir School. Esta herramienta, recoge, conserva y distribuye la producción digital de carácter científico, académico y cultural de la Institución, con el propósito fundamental de difundir conocimiento relacionado con la educación en sus diversas áreas de conocimiento y aprendizaje en el ciclo escolar..
